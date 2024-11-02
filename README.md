@@ -1,4 +1,2 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://production-tailoy-repo-magento-statics.s3.amazonaws.com/imagenes/872x872/productos/i/f/i/figura-nendoroid-katsuki-bakugo-stealth-suit-v-64786-default-1.jpg)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
-wip . 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://i.pinimg.com/564x/dd/d9/6a/ddd96ac7b72d57ec9df2fec3412b1083.jpg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤㅤㅤwip
